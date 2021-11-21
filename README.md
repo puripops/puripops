@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @puripops
+- 👀 I’m interested in all things problem-solving
+- 🌱 I’m currently learning Terraforms
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me N/A
